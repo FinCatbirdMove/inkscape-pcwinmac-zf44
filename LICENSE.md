@@ -1,4 +1,4 @@
-# 
+# Best Inkscape plugins for Mac OS | Official Inkscape plugins for PC Windows. Featuring design-templates and RAW-processing — optimized for maximum performance on every platform.
 
 
 
